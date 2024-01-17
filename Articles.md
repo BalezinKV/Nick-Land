@@ -43,8 +43,8 @@
 2. [DISINTEGRATION](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/3wklxRLa)
 3. [INDEPENDENCE GAMES](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/35sB3boK)
 4. [MODERNITY’S FERTILITY PROBLEM](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/XolHGbxT)
-5. []()
-6. []()
+5. [PRIMORDIAL ABSTRACTION](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/W00nkJwT)
+6. [PSYCHO POLITICS](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/e8tj2LgT)
 7. []()
 8. []()
 
