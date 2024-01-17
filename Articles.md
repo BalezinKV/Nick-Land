@@ -45,7 +45,7 @@
 4. [MODERNITY’S FERTILITY PROBLEM](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/XolHGbxT)
 5. [PRIMORDIAL ABSTRACTION](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/W00nkJwT)
 6. [PSYCHO POLITICS](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/e8tj2LgT)
-7. []()
+7. [PRIMORDIAL ABSTRACTION]()
 8. []()
 
 
