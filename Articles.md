@@ -10,6 +10,7 @@
 8. [Taking Lives](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/u11RxZKJ)
 9. [The Soong Sisters](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/X00FBTDS)
 10. [Troy](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/PxsBRDpT)
+11. [Choosing the path less familiar](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/O40xSJaa)
 
 # Shangai Star
 1. ['Dumb' leaders should betreasured](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/fls3CbqI)
@@ -31,3 +32,20 @@
 17. [Premature RMB revaluation could hurt everybody](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/PtsXmRZD)
 18. [Restoring urban memories](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/HklVQJpK)
 19. [Shanghai's back garden](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/y88BiRyK)
+
+# Compact Mag
+1. [The Devil’s Work](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/Dk1ngDII)
+2. [The Open Spiral](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/fs1hnb6T)
+3. [Why We Need theCanon Wars](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/LkkzmDYJ)
+
+# Jacobite
+1. [A QUICK-AND-DIRTYINTRODUCTION TOACCELERATIONISM](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/6ksF2ZAY)
+2. [DISINTEGRATION](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/3wklxRLa)
+3. [INDEPENDENCE GAMES](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/35sB3boK)
+4. [MODERNITY’S FERTILITY PROBLEM](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/XolHGbxT)
+5. []()
+6. []()
+7. []()
+8. []()
+
+
