@@ -16,6 +16,24 @@
 4. [Suspended Animation](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/y08hxT6C)
 5. [Xinjing horizons](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/r4lH3RLQ)
 
-## Urbanomy
+## Urbanomic
 1. [Fanged Noumena](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/61tlxD4Q)
 2. [Fanged N oumena COLLECTED WRITINGS 1987-2007 ](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/LklRlJAY)
+
+## Others
+1. []()
+2. []()
+3. []()
+4. []()
+5. []()
+6. []()
+7. []()
+8. []()
+9. []()
+10. []()
+11. []()
+12. []()
+13. []()
+14. []()
+15. []()
+16. []()
