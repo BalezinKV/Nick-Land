@@ -1,3 +1,11 @@
+---
+title: Articles by Nick Land
+pubDatetime: 2024-01-31
+description: China Daily, Shangai Star, Compact Mag, Jacobite.
+---
+
+
+
 # China Daily 
 ## DVD Reviews 
 1. [King Arthur and 24 Hours Party People](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/Tk8VhRwI)
@@ -46,6 +54,5 @@
 5. [PRIMORDIAL ABSTRACTION](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/W00nkJwT)
 6. [PSYCHO POLITICS](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/e8tj2LgT)
 7. [PRIMORDIAL ABSTRACTION]()
-8. []()
 
 

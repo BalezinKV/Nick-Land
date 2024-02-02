@@ -1,3 +1,11 @@
+---
+title: The other stuff by Nick Land
+pubDatetime: 2024-01-31
+description: PhD Thesis and some other works.
+---
+
+
+
 1. [Cultivation of the Grapheme (PhD Thesis)](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/yhtTmJSa)
 2. [Other Endings ](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/H0sTgRSS)
 3. [Land EMAILS from D&G](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/Kl1zgbJA)

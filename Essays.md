@@ -1,3 +1,11 @@
+---
+title: Essays by Nick Land
+pubDatetime: 2024-01-31
+description: 34 Essays.
+---
+
+
+
 # Essays
 1. [Aborting the human race](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/nl0jEDQQ)
 2. [COLD ANARCHY](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/a19VDLqI)

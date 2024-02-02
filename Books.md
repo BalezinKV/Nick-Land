@@ -1,3 +1,11 @@
+---
+title: Books by Nick Land
+pubDatetime: 2024-01-31
+description: 29 books with links to mega.
+---
+
+
+
 # Author
 ## Imperium press
 1. [The Dark Enlightement](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/39llgTaJ)

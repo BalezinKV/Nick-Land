@@ -1,3 +1,10 @@
+---
+title: Blog posts by Nick Land
+pubDatetime: 2024-01-31
+description: Urban future, Vauungs Lair, Zero philosophy.
+---
+
+
 # Blog posts
 ## Urban future
 1. ["2035. Probably earlier."](https://mega.nz/folder/vpFwWTZB#kLKq6nZBUOzSDTGimU4bwQ/file/q10XhThT)
